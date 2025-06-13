@@ -1,2 +1,3 @@
-![hi](https://komarev.com/ghpvc/?username=roaringknight)⠀
-i hvae NO fucking clue what im doing with this let me figure it out ok?ok. wip (someone please teacg  me. pls.)
+![hi](https://komarev.com/ghpvc/?username=roaringknight)
+
+i have zero fawking clue on how to use this PLEASE someone teach me,, ╰（‵□′）╯
